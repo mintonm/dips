@@ -12,3 +12,4 @@ Instructions:
 - and mix well
 - dash of hot sauce
 - chop jalepeno
+stir
