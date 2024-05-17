@@ -1,3 +1,5 @@
+Estimated prep time: 5-10 min
+
 Ingredients:
 - 2 avocados
 - 1 lime
